@@ -12,3 +12,7 @@ ooooohh hajime 🤤🤤🤤🤤🤤Ilove you
 <img width="200" height="300" alt="1bf82aed3ab5b77bd1010faa0f0b85e2" src="https://github.com/user-attachments/assets/41959917-d4a3-4879-a92b-5a342dedcd50" />
 
 he looks so cute in this picture omg 🥺🥺🥺cutie pie 🥺🥺🥺
+
+<img width="200" height="200" alt="01b8d94987140b763a8dd91107314cc7" src="https://github.com/user-attachments/assets/90fb32c9-b71a-476b-a439-f5857659d4d7" /><img width="210" height="300" alt="9dcc347ccdd3fbfd9d768aad4ce2c642" src="https://github.com/user-attachments/assets/c7ffaec4-9f84-4fd0-9746-79bb81d9b5bf" />
+
+aww hajime yur so cute I wish I could 🤤🫩ykw nvm
