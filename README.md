@@ -5,9 +5,10 @@ ouu shii hajime👀👀👀
 he lucky i ain't behind allat🤤🤤🤤
 
 
-<img width="373" height="356" alt="Screenshot_20260815-092935" src="https://github.com/user-attachments/assets/eb9acde1-20ce-4082-8125-09d5bb57e519" />
+<img width="554" height="471" alt="257" src="https://github.com/user-attachments/assets/d6ae6f21-f7c7-4ce1-a9e5-aeedd01d7539" />
 
-hajime yur so cute🥺🥺🥺🥺🥺🥺aww
+
+hajimee🥺🥺🥺🥺🥺🥺aww
 
 <img width="200" height="300" alt="1bf82aed3ab5b77bd1010faa0f0b85e2" src="https://github.com/user-attachments/assets/41959917-d4a3-4879-a92b-5a342dedcd50" />
 
